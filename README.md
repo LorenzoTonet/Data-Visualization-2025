@@ -9,7 +9,7 @@ https://data-visualization-videogames.my.canva.site/
 Other participants: 
 - [@frekkoz3](https://github.com/frekkoz3)
 - [@lollobrollo](https://github.com/lollobrollo)
-- Filippo Finotto
+- [@Filippo2003f](https://github.com/Filippo2003f)
 
 </br>
 </br>
